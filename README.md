@@ -5,7 +5,8 @@ V1 TRCORDU YAYINLAMAKLA ONUR DUYARIZ
 
 
 V2 NİN ÇIKIŞINI ONURLA SUNARIZ 
-<img width="1919" height="1096" alt="Ekran görüntüsü 2025-11-08 140857" src="https://github.com/user-attachments/assets/acb9ec94-b882-40b3-9149-f6ef45f7ac6e" />
+<img width="1918" height="1096" alt="Ekran görüntüsü 2025-11-08 140916" src="https://github.com/user-attachments/assets/d9e78823-ac4a-4cfd-86f9-c3bba34bf8ca" />
+
 
 
 
